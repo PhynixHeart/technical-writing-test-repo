@@ -10,9 +10,13 @@ Many other examples apply to The Lesbian Agenda
 
 ## Installation
 Installing The Lesbian Agenda is easy! In fact today with those that are in power, it's easier then ever before!
+
 [ ] 1 - Start by preparation of your physical appearance. Nails must be trimmed to a minimum or a balance between available nail polish real estate and smooth comfort. Hair should be either short ( particularly at the sides ) or extremely long but dyed in exotic or bright colors. Clothing should be rough and crude or extra feminine.
+
 [ ] 2 - Secondly if you are partnered with a man, a dumping is required. If you are un-partnered then you are ready for the next step!
+
 [ ] 3 - Find another woman or queer person. Expect this step to take as long as many days or as little as a couple hours. Chat, flirt, complement, or vigorously make out in front of a building or symbol of the patriarchy.
+
 [ ] 4 - Scheduled a uHaul truck ( something at least big enough for 75% to 90% of everything you own. ) Then move in to the living arrangement that is appropriately comfortable to the corresponding woman or queer person of choice.
 This should conclude the installation of The Lesbian Agenda. If there was any issues or problems, stop everything and repeat from step 1.
 
